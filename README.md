@@ -1,0 +1,2 @@
+# practica-colaborativa-A
+ESTE REPOSITORIO TIENE SOLO FINES EDUCATIVOS 
